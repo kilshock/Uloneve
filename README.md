@@ -1,4 +1,4 @@
-hey. I'm brooklyn i run kilshock i make music (ladies ladies) you're here from pony town i guarantee so feel free to read either one of my rentries (they're essentially the same thing except ones more in detail)
+hey. I'm brooklyn i run kilshock i make music (ladies ladies) you're here from pony town i guarantee so feel free to read my rentry
 
 i grew out of pony town in 2023 okay the only reason im here is because i have buddies and honestly coloring stupid horses is really fun
 
